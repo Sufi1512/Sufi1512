@@ -21,7 +21,7 @@
 
 - 📫 How to reach me **ksufiyan38@gmail.com**
 
-- 📄 Know about my experiences [https://www.linkedin.com/in/sufiyankhan15/](https://www.linkedin.com/in/sufiyankhan15/)
+- 📄 Know about my experiences [https://www.linkedin.com/in/sufiyankhan15/](https://www.sufiyankhan.tech)
 
 - ⚡ Fun fact **I think I'm Intellectual 🧠🤌**
 
